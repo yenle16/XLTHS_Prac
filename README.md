@@ -1,0 +1,3 @@
+# XLTHS_Prac
+Link Báo cáo:
+https://www.canva.com/design/DAFSN2JVXc4/30HQFxXqoZ3j2tdpa--x8A/view?utm_content=DAFSN2JVXc4&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
